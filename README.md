@@ -1,4 +1,4 @@
 # 毕业设计项目
 
+![在这里插入图片描述](https://img-blog.csdnimg.cn/f2dfe5aada934544978822cbabb7474e.png#pic_center)
 
-![输入图片说明](%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20230406150634.png)
